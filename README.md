@@ -216,4 +216,4 @@ CleanUp! is available as a full free version, providing you with all features an
 Start optimizing your computer today with CleanUp! — download the complete package now!
 
 ---
-**Last updated:** 2026-10-18 12:15:31 UTC
+**Last updated:** 2026-10-18 16:12:49 UTC
